@@ -16,3 +16,8 @@ https://theresanaiforthat.com/
 https://alison.com/es
 
 https://tinywow.com/
+
+https://manus.im/
+
+https://app.klingai.com/global/
+
